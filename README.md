@@ -1,1 +1,1 @@
-# AFrameXR
+# Por Marta & Ángel
